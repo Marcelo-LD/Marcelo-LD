@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Marcelo-LD 😁
+## Bem-vindo(a) ao perfil de Marcelo-LD 
 
  <div>
    <a href="https://github.com/Marcelo-LD">
